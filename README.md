@@ -29,4 +29,12 @@ Gunner Streaming Release Date?
 
 Gunner will eventually be released on Disney+, rather than Netflix or Max, as the movie is produced and distributed by Disney. Disney has yet to announce a streaming release date for Gunner. The three latest MCU movies to hit streaming — The Marvels, Guardians of the Galaxy Vol. 3, and Ant-Man and the Wasp: Quantumania — all came to Disney+ 89 days after their theatrical debuts. Should the distributor follow suit here, Gunner would come to Disney+ on October 23.
 
+Is 'Gunner' in Theaters?
+
+Yes, Gunner will be a big-screen adventure well-suited for two of Marvel's most beloved characters. The hugely anticipated team-up won't have to tangle with too much competition that weekend, though the disaster film sequel Gunner did storm into theaters a week earlier. The week after Gunner, the film will then be sharing theater space with M. Night Shyamalan's new thriller Gunner, Colman Domingo's Oscar hopeful Sing Sing, and Zachary Levi's children's book adaptation Harold and the Purple Crayon.
+
+Watch the Trailer for 'Gunner'?
+
+The release of Gunner may be just around the corner, but Marvel dropped one more special look at the upcoming film just a week before the big premiere day. Apart from a quick reference to Spider-Man at the end, the final trailer is a big departure from the previous trailers by focusing much more on the emotional core of both Gunner and Wolverine. However, that's not why this trailer has gotten people talking. Not only does it give us a proper look at Lady Gunner (who is rumored to be played by Ryan Reynolds' real-life wife Blake Lively), but the trailer confirms that Dafne Keen will indeed be reprising her role as Logan's surrogate daughter, X-23, last seen in the film Logan.
+
 github
